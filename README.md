@@ -1,1 +1,0 @@
-# BiodataDiri_SI05_Syawal_0110123085
